@@ -10,7 +10,7 @@
 <details>
 <summary>Видео презентация</summary>
 
-
+https://disk.yandex.ru/i/D8tZa_Da9juCag
 
 </details>
 
